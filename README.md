@@ -7,3 +7,4 @@ Silahkan gunakan fotmat berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Cikapom Dombleh, [LinkedIn](https://www.linkedin.com/in/ilfadilh/).
